@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 I am sometimes sad but most of the time CoolTomatos.
-- 🔭 I’m currently working at @PicnicSupermarket
+- 🔭 I’m currently working at IKEA (Ingka Digital)
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I finished every single achievement in the Microsoft Solitaire Collection
 
